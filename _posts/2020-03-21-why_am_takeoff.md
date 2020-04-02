@@ -1,5 +1,5 @@
 ---
-title: Why the astrology took off again?
+title: Why the astrology still remain with us?
 tags: astrology
 ---
 
